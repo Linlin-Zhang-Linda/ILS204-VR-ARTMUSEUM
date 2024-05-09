@@ -1,4 +1,4 @@
-1. I am sorry please check the **video** here(the file is still too big to uploading to github/canvas..): 
+1. I am sorry please check the **video** here(the file is still too big to upload to github/canvas..): 
 https://uwmadison.box.com/s/v4i59miw0cdaae1o22hlj6ousbdw3j75
 
 2. Here is my **report**:
