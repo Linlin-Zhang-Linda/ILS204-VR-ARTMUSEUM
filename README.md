@@ -4,9 +4,9 @@
    
    https://youtu.be/KYwbJe3MnJw
    
-   1.2 Here I go faster without clicking (**shorter** 2:04 intotal):
+   1.2 Here I go faster without clicking (**shorter** 2:05 intotal):
    
-   https://uwmadison.box.com/s/v4i59miw0cdaae1o22hlj6ousbdw3j75
+   https://youtu.be/qjPACf3nz-U
 
 **2.** Here is my **report**:
 
