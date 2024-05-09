@@ -1,10 +1,10 @@
 **1.** I am sorry please check the **video** here(the file is still too big to upload to github/canvas..):
 
-&emsp; &emsp; 1.1 Here I explore the museum by clicking one each artwork(**longer** 3:31 intotal):
+&emsp; &emsp; **1.1** Here I explore the museum by clicking one each artwork(**longer** 3:31 intotal):
    
 &emsp; &emsp; https://youtu.be/KYwbJe3MnJw
    
-&emsp; &emsp; 1.2 Here I go faster without clicking (**shorter** 2:05 intotal):
+&emsp; &emsp; **1.2** Here I go faster without clicking (**shorter** 2:05 intotal):
    
 &emsp; &emsp; https://youtu.be/qjPACf3nz-U
 
