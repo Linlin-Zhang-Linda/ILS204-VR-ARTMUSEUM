@@ -12,6 +12,3 @@ https://uwmadison.box.com/s/jzff5zip5p9ldgjq8ypm3b2djq5e91ug
 
 5. The analytic of each artwork could be find in "**data.json**"'s description part:
 https://uwmadison.box.com/s/0livq1tyvae9t7akqxe9sgij7vvck6g7
-
-
-
