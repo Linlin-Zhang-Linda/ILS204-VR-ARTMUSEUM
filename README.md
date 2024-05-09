@@ -12,7 +12,7 @@
 
 https://uwmadison.box.com/s/1k8va07ktwdi29z4qcvhkxztyrtsaz3g
 
-**3.** Here is the .zip file conclude the **.app** file(Sorry agin that I have to zip it since it's bigger than the uploading limit):
+**3.** Here is the .zip file conclude the **.app** file(Sorry again that I have to zip it since it's bigger than the uploading limit):
 
 https://uwmadison.box.com/s/n0judgs0scofs8kgd3zkrqjsekzmupn8
 
