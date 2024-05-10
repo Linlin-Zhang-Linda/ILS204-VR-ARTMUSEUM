@@ -8,19 +8,19 @@
    
 &emsp; &emsp; https://youtu.be/qjPACf3nz-U
 
-**2.** Here is my **report**:
+**2.** [updated] Here is my **Project Report & Analysis of Each Artwork Included**:
 
-https://uwmadison.box.com/s/1k8va07ktwdi29z4qcvhkxztyrtsaz3g
+https://uwmadison.box.com/s/7cppsgh3eqk48phti89i4btd4pl4xjfa
 
-**3.** Here is the .zip file conclude the **.app** file(Sorry again that I have to zip it since it's bigger than the uploading limit):
+**3.** [updated] Here is the .zip file conclude the **.app** file(Sorry again that I have to zip it since it's bigger than the uploading limit):
 
 https://uwmadison.box.com/s/n0judgs0scofs8kgd3zkrqjsekzmupn8
 
-**4.** Here is my **source file**:
+**4.** [updated] Here is my **source file**:
 
 https://uwmadison.box.com/s/jzff5zip5p9ldgjq8ypm3b2djq5e91ug
 
-**5.** The analytic of each artwork could be find in "**data.json**"'s description part:
+**5.** [updated] The analytic of each artwork could be find in "**data.json**"'s description part:
 
 https://uwmadison.box.com/s/0livq1tyvae9t7akqxe9sgij7vvck6g7
 
